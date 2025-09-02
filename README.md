@@ -1,5 +1,5 @@
 # 🌵 About Me:
-😝Olá! Meu nome é Wesley Mendes de Sousa.<br>⭐Curso o 3° ano do Ensino Médio integrado ao curso de informática na Etec MCM<br>🤖Este perfil é voltado aos meus estudos, aqui postarei meus projetos escolares e pessoais!<br>🤑Pretendo me tornar um analista de dados ou ingressar na Mercedes-Benz!
+😝Olá! Meu nome é Wesley Mendes de Sousa.😝<br>⭐Curso o 3° ano do Ensino Médio integrado ao curso de informática na Etec MCM.⭐<br>🤖Este perfil é voltado aos meus estudos, aqui postarei meus projetos escolares e pessoais!🤖<br>🤑Pretendo me tornar um analista de dados ou ingressar na Mercedes-Benz!🤑
 
 
 ## 🌐 Socials:
